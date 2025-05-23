@@ -4,6 +4,8 @@
 
 **Wacky Flip Game** is an **epic arcade-style** runner where physics meets fun in the most **insane and unpredictable ways**. Flip, jump, and crash through a series of **crazy challenges** as you guide your wacky character through endless obstacles and deadly traps.
 
+## <a href="https://1kb.link/2gW9DV">👉 Click To Play Wacky Flip Unblocked Games 👈</a>
+
 Designed with **hyper casual** players in mind, this game delivers **fast-paced** action, **one-tap controls**, and **hilarious fails** that make every round feel fresh and **blazingly fun**.
 
 ---
